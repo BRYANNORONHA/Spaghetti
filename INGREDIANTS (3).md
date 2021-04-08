@@ -1,0 +1,2 @@
+baking soda
+A simple, slow cooked, authentic spaghetti sauce, as good as the restaurants serve...or better! The secret ingredient is baking soda, but do not taste the sauce right after adding it. Wait a while, and this sauce will not disappoint you.
